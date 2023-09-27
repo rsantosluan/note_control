@@ -1,1 +1,1 @@
-# note_control
+# Usem sem moderação!
